@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Few of my favourite foods 🤤
+-Parotta and Beef
+-Pizza
+-Bhel Puri
+-Kothu Parotta
