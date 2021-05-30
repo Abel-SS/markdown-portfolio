@@ -1,4 +1,4 @@
-*b  *i Programming Skills *i
+Programming Skills
 - HTML
 - C
 - Mysql
